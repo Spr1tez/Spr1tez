@@ -9,13 +9,13 @@
 
 ### **$\color{#440F78}\text{୨୧ ,,}$ $\color{#440F78}\text{compliments}$ $\color{#65199B}\text{are}$ $\color{#8E189B}\text{always}$ $\color{#A921A4}\text{appreciated!}$ㅤ $\color{#FFD000}\text{make}$ $\color{#FFD000}\text{sure}$ $\color{#F6B214}\text{to whisper}$ $\color{#F69414}\text{so i}$ $\color{#F67A14}\text{can see}$ $\color{#FF5D00}\text{it!}$ㅤ $\color{#8E189B}\text{(✿◠‿◠)}$** 
 
- ㅤ ㅤ ㅤ ㅤㅤ **$\color{#440F78}\text{₊ 15}$ $\color{#65199B}\text{yo !}$ㅤ $\color{#A921A4}\text{✕}$ㅤ $\color{#F6B214}\text{. i}$ $\color{#FFD000}\text{LOVE}$ $\color{#F6B214}\text{interacting}$ $\color{#F69414}\text{with}$ $\color{#F67A14}\text{people}$ㅤ $\color{#FF5D00}\text{+}$ㅤ $\color{#65199B}\text{making}$ $\color{#8E189B}\text{new}$ $\color{#A921A4}\text{friends, so don't}$ $\color{#8E189B}\text{be shy}$ $\color{#65199B}\text{if you wanna}$ $\color{#440F78}\text{interact with me! 𓂅}$**
+ ㅤ  ㅤ ㅤㅤ **$\color{#440F78}\text{₊ 15}$ $\color{#65199B}\text{yo !}$ㅤ $\color{#A921A4}\text{✕}$ㅤ $\color{#F6B214}\text{. i}$ $\color{#FFD000}\text{LOVE}$ $\color{#F6B214}\text{interacting}$ $\color{#F69414}\text{with}$ $\color{#F67A14}\text{people}$ㅤ $\color{#FF5D00}\text{+}$ㅤ $\color{#65199B}\text{making}$ $\color{#8E189B}\text{new}$ $\color{#A921A4}\text{friends, so don't}$ $\color{#8E189B}\text{be shy}$ $\color{#65199B}\text{if you wanna}$ $\color{#440F78}\text{interact with me! 𓂅}$**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **$\color{#65199B}\text{¹}$ [Roblox](https://www.roblox.com/users/863982551/profile) $\color{#440F78}\text{+}$ [prns.cc](https://pronouns.cc/@spr1te) $\color{#65199B}\text{²}$**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **$\color{#65199B}\text{¹}$ [Roblox](https://www.roblox.com/users/863982551/profile)ㅤ $\color{#440F78}\text{+}$ㅤ [Mutiny playlist](https://open.spotify.com/playlist/1kyNoHW1KQzu2nWHzhybHe?si=32f007dc521a45bb) $\color{#65199B}\text{²}$**
 
 ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#440F78}\text{" Why}$ $\color{#440F78}\text{can't}$ $\color{#65199B}\text{we}$ $\color{#65199B}\text{laugh}$ $\color{#73189B}\text{now}$ $\color{#73189B}\text{like}$ $\color{#8E189B}\text{we}$ $\color{#A921A4}\text{did}$ $\color{#A921A4}\text{then?}$ $\color{#A921A4}\text{how}$ $\color{#8E189B}\text{come}$ $\color{#73189B}\text{i}$ $\color{#73189B}\text{see}$ $\color{#65199B}\text{you}$ $\color{#65199B}\text{and}$ $\color{#440F78}\text{ache}$ $\color{#440F78}\text{instead? "}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Mutiny](https://views.igorkowalczyk.dev/api/badge/Spr1tez?label=୨ㅤWemmbus!&style=classic&color=440F78&labelColor=8E189B)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Wemmy](https://views.igorkowalczyk.dev/api/badge/Spr1tez?label=୨ㅤWemmbus!&style=classic&color=440F78&labelColor=8E189B)
 
 ###### $\color{#A921A4}\text{𓏵}$ $\color{#65199B}\text{art made}$ $\color{#73189B}\text{by}$ [@velvsuki](https://x.com/velvsuki) $\color{#8E189B}\text{on}$ $\color{#A921A4}\text{twitter ! ꒱}$
 
